@@ -1,0 +1,1 @@
+# Nadezhda1994-Homework_CourseQA_VadimKsendzov
